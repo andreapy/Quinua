@@ -1,1 +1,1 @@
-# Quinua
+# Quinoa
